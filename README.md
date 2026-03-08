@@ -22,5 +22,5 @@ I am a final-year **Automation Engineering** student at Duoc UC, currently trans
 ---
 
 ### 📫 Connect with me:
-* **LinkedIn:** [Tu Link de LinkedIn aquí]
+* **LinkedIn:**[ [Tu Link de LinkedIn aquí]](https://www.linkedin.com/in/javiera-ramirez-contreras/)]
 * **Location:** Santiago, Chile ➡️ Future Goal: United Kingdom 2028 🇬🇧
